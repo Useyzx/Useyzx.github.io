@@ -1,1 +1,1 @@
-yzx.github.io
+yzx.io
